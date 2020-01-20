@@ -1,0 +1,2 @@
+# Tri-Wicaksono
+Belajar newbie
